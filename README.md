@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @kimkratos
+- 👀 I’m interested in breaking dance
+- 📫 How to reach me z1037381963@gmail.com
